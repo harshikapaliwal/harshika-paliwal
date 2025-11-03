@@ -24,5 +24,3 @@
 [LinkedIn](https://linkedin.com/in/YOUR-LINK) • [Twitter](https://twitter.com/YOUR-LINK) • [Portfolio](YOUR-SITE)
 
 
-## 📫 Connect with me
-[LinkedIn](https://linkedin.com/in/YOUR-LINK) • [Twitter](https://twitter.com/YOUR-LINK) • [Portfolio](YOUR-SITE)
